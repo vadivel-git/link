@@ -8,5 +8,9 @@ https://app.moqups.com
 -------------------------------
 https://www.designernews.co/
 -------------------------------
-
-
+https://dribbble.com/
+-------------------------------
+https://in.pinterest.com/
+-------------------------------
+https://cssauthor.com/
+-------------------------------
